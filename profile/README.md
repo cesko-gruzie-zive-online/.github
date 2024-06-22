@@ -1,33 +1,43 @@
-!~[DIRECT-TV] Toulouse - La Rochelle En Direct S.treaming Gratuit TV 21 juin 2024
+{{Živé vysílání}} Česko - Gruzie ŽIVÉ ONLINE (EURO fotbal 2024) 22. června 2024
 =
-Toulouse - La Rochelle : sur quelle chaîne et à quelle heure voir la demi-finale Top 14 en direct ?
-Les demi-finales du Top 14 démarrent ce vendredi ! Le premier sommet du week-end est un choc entre le Stade Toulousain et le Stade Rochelais. On vous dit tout sur cette affiche, notamment sur quelle chaîne et à quelle heure voir Toulouse - La Rochelle en direct à la TV.
+Česko - Gruzie v TV: kde sledovat ME ve fotbale 2024 živě?
 
-La demi-finale du Top 14 entre Toulouse et La Rochelle se déroule ce vendredi 21 juin. Le coup d’envoi de ce sommet de rugby est prévu à 20h15 et se déroule au stade Matmut Atlantique de Bordeaux. Une rencontre à une heure inhabituelle puisque l’équipe de France de football dispute son match face aux Pays-Bas à 21h. La diffusion de Stade Toulousain - Stade Rochelais est assurée en direct et en exclusivité sur la chaîne TV CANAL+.
+Českou fotbalovou reprezentaci čeká na mistrovství Evropy v Německu druhým zápas, tentokrát se v rámci skupiny F utká s Gruzií. Po prohře se silným Portugalskem čelí svěřenci Ivana Haška papírově nejslabšímu soupeři. Kdy a kde sledovat druhý duel národního týmu na EURO 2024 v Německu živě?
 
-Vous pouvez suivre cette rencontre sur ordinateur, smartphone, Smart TV et tablette tactile notamment. La deuxième demi-finale du championnat oppose le Stade Français à l’Union Bordeaux-Bègles, ce samedi 22 juin à 21h05, toujours sur la chaîne TV CANAL+.
+Česko - Gruzie v TV?
+Přímý přenos duelu Česko - Gruzie vysílá stanice ČT sport. Předzápasové studio začíná ve 14:00.
 
-C’est sans aucun doute l’affiche la plus attendue du championnat. Les oppositions entre le Stade toulousain et le Stade rochelais sont devenues au fil des années la nouvelle rivalité du rugby français. Pour causes les résultats sportifs, les liens entre les deux effectifs et bien sûr la relation entre Ugo Mola et Ronan O’Gara.
+Od 14:30 sledujte studio na iSport.cz s bývalým hráčem Sparty i Slavie Josefem Hušbauerem a trenérem Václavem Kotalem, moderuje Jakub Plaskura.
 
-Deux exemples marquants d’une rivalité entre deux hommes qui animent notre championnat chaque saison. Rappelez-vous ce duel de regard lors de la saison 24e journée du Top 14 édition 2021/22. Les deux hommes se provoquent sous la bronca d’un Stadium de Toulouse logiquement acquis au manager français avant que ce dernier ne se retourne et gratifie le public d’un de ses clins d’œil devenu iconique.
+Česko - Gruzie: První vzájemný zápas
+Česká fotbalová reprezentace se s Gruzií v soutěžním zápase ještě nepotkala. Tým okolo hvězdného křídelníka Neapole Chviči Kvaraccheliji postoupil na EURO přes baráž, ve které nejprve vyřadil Lucembursko (2:0), následně si ve finále poradil na penalty s Řeckem poté, co za 120 minut duelu nepadla branka.
 
-Adoré ou détesté, les deux hommes ont en commun de ne laisser personne indifférent, pour le plus grand bonheur des médias. Mais tout cela disparaît à l’heure du coup d’envoi et la rivalité devient sportive. Là aussi, la déception est rare.
+Druhé utkání české fotbalové reprezentace na evropském šampionátu a obrovská neznámá. S fotbalisty Gruzie se totiž Česko ještě nikdy nesetkalo. První vzájemné střetnutí se odehraje v sobotu 22. června od 15 hodin v Hamburku.
 
-Sur les quatorze dernières confrontations entre les deux stade, les Maritimes ne comptabilisent que trois succès acquis à domicile. Ils n’ont jamais su prendre à revers les Toulousains en bord de Garonne et le meilleur résultat loin de Marcel-Deflandre date du 2 juin derniers et le match nul obtenu lors de la 25e journée de championnat.
+Gruzínská fotbalová reprezentace na konci března zaznamenala historický úspěch, když se přes baráž poprvé v dějinách země kvalifikovala na velkou akci. V dvoukolovém formátu si nejdřív poměrně hladce poradila na domácím hřišti s Lucemburskem.
 
-Ce bilan largement en faveur des Toulousains en fait la bête noire des Rochelais qui essayent de "forcer le destin" autant qu’ils le peuvent "pour rivaliser avec eux" selon les mots de Ronan O’Gara. Les duels entre Toulousains et Maritimes sont l’occasion de voir s’affronter de nombreux internationaux tricolores, mais surtout des amis d’enfance, une donnée qui ajoute de l’intrigue à ce nouveau classique.
+Na letošní EURO pak Gruzii poslal úspěšný penaltový rozstřel v utkání proti Řecku. Gruzie, která ve své kvalifikační skupině skončila až čtvrtá za Španělskem, Skotskem a Norskem, se tak na osmý pokus poprvé propracovala až na závěrečný turnaj kontinentálního šampionátu.
 
-La demi-finale de Top 14 de rugby entre le Stade Rochelais et le Stade Toulousain au Matmut Atlantique à Bordeaux se jouera à guichets fermés le vendredi 21 juin. Plus de 42 000 personnes sont attendues. Le coup d’envoi est prévu à 20 h 15, l’ouverture de la fan zone à 16 h 15 (concerts prévus avant et après le match) et l’ouverture des portes du stade à.
+Česko vs. Gruzie: Podívejte se na ekonomické srovnání zemí před zápasem na Euro 2024
 
-Un parking P5 Parc expo sera ouvert, accessible depuis les sorties 4a et 6 de la rocade de Bordeaux. Il est payant pour les voitures et sans réservation à partir de 10 heures (15 euros), gratuit pour les motos et véhicules de personnes en situation de handicap.
+Fotbalový šampionát Euro 2024 pokračuje zápasem skupiny F, v němž změří síly Česko a Gruzie. Kdo hraje fotbal lépe, se dozvíme na hřišti. Jak vychází ekonomické srovnání Česka a Gruzie? Naše grafika zohledňuje ukazatele jako inflace, HDP nebo nezaměstnanost. Česko a Gruzie změří síly ve fotbalovém zápase na Euro 2024, který se hraje v Hamburku v sobotu od 15.00.
 
-Toulouse et La Rochelle, les deux derniers champions de la Champions Cup se rencontrent ce vendredi 21 juin (20h15) à pour décrocher une place en finale du championnat. Retrouvez ici toutes les informations sur la diffusion du match de Top 14.
-Ce vendredi, sur la pelouse du Matmut Atlantique de Bordeaux, le premier ticket pour la finale du Top 14 sera en jeu. Le Stade Toulousain et le Stade Rochelais, les deux derniers vainqueurs de la Champions Cup, s'affronteront dans une rencontre décisive. Le Bouclier de Brennus n'est plus qu'à deux victoires.
+Zlomový zápas pro český tým. Na Euru se utká s Gruzií
 
-Programmation TV de Toulouse - La Rochelle
+Po prohře 1:2 s Portugalskem čeká české fotbalisty na Euru v Německu druhý zápas. V sobotu od 15 hodin se utkají s outsiderem skupiny Gruzií. Aby mohla parta kolem kapitána Tomáše Součka pomýšlet na postup, bodový zisk je nezbytný. Přímý přenos vysílá Česká televize a online přenos můžete sledovat na webu Sport.cz.
 
-Match : Toulouse-La Rochelle (Top 14, Demi-finale)
-Date : vendredi 21 juin
-Stade : Matmut Atlantique (Bordeaux)
-Heure : 20h15
-Chaîne : La rencontre est à suivre sur Canal+
+„Neočekávám, že by Gruzie otevřela obranu a útočila ve velkém počtu lidí. U nich jdou do koncovky tři až čtyři hráči, kteří jsou ale velmi nebezpeční,“ říká český trenér Ivan Hašek.
+
+Jedním z těch, na které si je potřeba dát pozor, je křídelník Neapole Chviča Kvaracchelija. Větší hvězdu Gruzie ve svém kádru nemá.
+
+Vedle toho Češi budou chtít ukázat svou herní tvář. Proti Portugalsku se většinu duelu bránili. I když po trefě Lukáše Provoda vedli, nakonec tlaku soupeře neodolali a po relativně smolných gólech padli 1:2.
+
+Také Gruzie je zatím na nule. V jednom z nejatraktivnějším duelů šampionátu prohrála s Tureckem 1:3.
+
+Kdo získá první body? Jedno z klíčových utkání pro český mančaft má v Hamburku výkop v 15 hodin.
+
+ONLINE: Česko - Gruzie. Druhý duel na EURO, kdo udrží naději na postup?
+
+České fotbalisty čeká v sobotu na EURO 2024 klíčový duel v boji o postup do osmifinále. Po úvodním nezdaru s Portugalskem potřebují v souboji s Gruzií zvítězit. Zápas začíná v 15 hodin a ONLINE přenos můžete sledovat na iSport.cz, kde vám nabídneme i živé studio s Josefem Hušbauerem a Václavem Kotalem!
+
+Gruzínci na úvod šampionátu podlehli Turecku 1:3, a protože do vyřazovací fáze postoupí první dva týmy z každé skupiny a nejlepší čtveřice z třetích míst, bude dnešní duel pro oba soupeře klíčový. Češi poté zakončí skupinu zápasem s Tureckem, Gruzii čeká Portugalsko.
